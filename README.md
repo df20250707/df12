@@ -13,4 +13,4 @@
 平台无广告，让你专注于影片本身，享受无干扰的观看体验。所有数据传输加密，保护隐私安全，且无需注册或订阅，直接访问即可观看。
 如果你需要一个安全、免注册、无广告的日本AV观看平台，这里是理想选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/df20250707/df12 ）</span>
